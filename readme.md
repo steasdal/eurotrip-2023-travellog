@@ -222,11 +222,30 @@ I took a quick shower and we both crashed into our shoved-together twin beds aro
 ## Day Five - Zurich to Paris
 
 * Breakfast
+* Nap
+* Hot Chocolate
+* Lunch
+* Train Station
 
 Carla told me that she was actually awake at midnight.  Neither of us managed to get back to sleep.  WTF?  We've never had this much trouble adjusting to the local timezone before.  I might need to see about bringing along some pharmaceutical assistance on future trips if this is the way it's going to be.
 
 After reading on our iPhones for a few hours, we headed down to the Swiss Chuchi for breakfast.  The spread was ok but it needed more protein.  There was a chafing dish lableed "scrambled eggs" which actually held some medium-boiled eggs still in their shells.  The cheese selection was decent but not what I imagined we'd find in this joint.  The at least had the essentials: coffee, croissants, and fruit preserves.  I prefer orange marmalade but instead made due with some peach preserves.  Over all, it was decent.
 
+Afterwards, we went back upstairs to try to see if we could get a few more winks.  Carla laid down and drifted off pretty quickly.  I worked on this travel log for a bit and, around 8:30 AM, laid down and got another hour and a half myself.  By the time we got up, packed up, and got ourselves ready, it was about 11:00 AM.  We checked out of the hotel and had 'em hang on to our luggage for us so that we could go out and do a last bit of exploring.  
+
+The first order of business was to find a hot chocolate joint and, oh boy, did we find a good one.  It was called the Schokolade & Espresso Bar and they basically had, like, a hot chocolate barista.  Carla went wite the "intense" hot chocolate and I got the more smooth and fruity one.  They were both fantastic.  We sat outside on the bench and sipped 'em into delicious oblivion.  
+
+Following that, we did a little bit more exploring around the old town and came across the Burton shop.  I neglected to pack any kind of warm base layer other than some flannel shirts and had actually been looking for exactly something like the Burton store.  We browsed the racks and came across a little old Jack Russell terrier wearing what appeared to be a bespoke cable knit sweater snuggled up in a dog bed.  He was so chill and so sweet.  We both gave him some scratches behind the ears and he started following Carla around the shop.  I eventually found a nice medium weight long sleeve t-shirt with BRTN written across the chest for a reasonable amount of Swiss Francs.  I purchased it and immediately slipped it on.  It was exactly what I was looking for.
+
+It was not about Noon and, having eaten breakfast nearly six hours prior, we decided to find some lunch.  I was looking for something light like a quick sandwich.  Google Maps revealed a 4.9 rated sandwich shop called "Al Paso" right by our hotel so we headed over there.  I had the pastrami, Carla had the Italian vegetarian, and we both had a cup of pea soup.  It was all superb.  There was only the tiny counter inside and two tiny tables outside so we took one of those.  By the time we left, there was a line out the door.  This was _the_ spot for sandwiches it would seem.
+
+Following an excellent morning in Zurich, it was time to head to the train station.  I picked up our bags from the hotel front desk and we walked back to Zurich HB.  We were still over an hour from our departure time so we found a little cafe, ordered a couple of cappuccinos, and chilled for a bit.  The train station is open air and we were sitting outside again.  I grabbed a blanket from the back of one of the cafe chairs to throw across my legs.
+
+It's at this point that I should mention that folks love open air dining in Zurich despite the frosty temperatures.  Most people seem to be well accustomed to the frosty temps.  A lot of restaurants with outside tables will provide furs and/or blankets for the more adventurous patrons that are down for a bit of mid-winter al fresco dining.
+
+While we were sitting at our little outdoor table sipping our drinks and waiting for our train to pop up on the departure board, our coach companion, Tim, from yesterday's train ride through the alps found us and sat down at the next table.  He wasn't going anywhere today, just hanging out at the train station and grabbing a bite to eat.  We chatted about the joys of international travel for the next half hour until it was time to board the TGV Lyria No. 9222 that'd be taking us to Paris.  It was waiting for us on platform 13.
+
+Being a rail enthusiast, I've dreamed for years about rocketing across the French countryside in a TGV so this one was special for me.  We found coach 11 at the very back of the train and found seats 25 and 26 on the bottom level.  Oh, yeah, this one was a double-decker.  At 1:34 PM almost to the second, the train pulled out of Zurich HB and _immediately_ started cruising along at speeds well above anything that we saw on the previous day's journey.  If I had to guess, I'd say we were tearing through the little stations outside of Zurich at a buttery smooth 70-80 MPH.  We had a little trouble finding space for our luggage in the luggage rack due to and older French couple monopolizing the space with the ridiculous number of bags that they dragged onboard.  Carla's roller back fit in the rack but I had to stuff my big backpack under our first class seats.  It actually fit like the space was made just for it.  The little bag for all the electronics fit nicely in the overhead rack above my seat.
 
 
 
