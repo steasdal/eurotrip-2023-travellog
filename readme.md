@@ -20,7 +20,7 @@ After lights out, we both reclined our seats to the full sleeping position and t
 
 Within about 30 minutes of finishing up breakfast, we were descending.  In no time at all we were on the ground at FCO "Leonardo Di Vinci" Airport.
 
-## Day 1 - Rome
+## Day One - Rome
 
 * Arrival
 * Hotel
@@ -213,7 +213,19 @@ I wandered about for a bit and made my way towards the train station.  I didn't 
 
 After emerging from this incredible underground labyrinth, I strolled around the train station for a few minutes admiring the architecture and the precision of the Swiss/Italian train system and moved on.  I crossed the river once more back to the old town side and strolled through the allies for a bit doing a bit of window shopping and people watching.  I wound up back at the hotel around 7:30 PM.
 
+My ass was really draggin' by this point but I knew that if I went to bed now, I'd be up at 2:00 AM.  I decided to chill for a few minutes and head back out again.  I relaxed for a few minutes while Carla took a hot bath to help sooth her angry left knee.  I fought sleep with everything I had but might have dozed for a few minutes.  Just a few minutes!  It doesn't count!
 
+I remembered that I had this magnetic tripod for my iPhone so I decided that I'd head back out and try to get some cool nighttime time lapses of nighttime Zurich.  I captured a few from the park overlooking the river and old town and a bunch more downtown.  Most of them had Zurich's super cool street cars in them.  I'm a sucker for a good streetcar.  The air was getting extra crisp and the throngs of holiday revelers were thinning out by 9:00 PM so I decided that I'd had enough and headed back to the hotel for the final time.  I did get some really lovely time lapses.
+
+I took a quick shower and we both crashed into our shoved-together twin beds around 10:00 PM.  I fell asleep, as they say, before my head hit the pillow.  I was ready for a long, full night of restful sleep.  The bed was comfy.  The window was cracked.  The comforter was warm and snuggly.  The conditions were absolutely perfect.  Naturally, I was wide awake at 2:00 AM.
+
+## Day Five - Zurich to Paris
+
+* Breakfast
+
+Carla told me that she was actually awake at midnight.  Neither of us managed to get back to sleep.  WTF?  We've never had this much trouble adjusting to the local timezone before.  I might need to see about bringing along some pharmaceutical assistance on future trips if this is the way it's going to be.
+
+After reading on our iPhones for a few hours, we headed down to the Swiss Chuchi for breakfast.  The spread was ok but it needed more protein.  There was a chafing dish lableed "scrambled eggs" which actually held some medium-boiled eggs still in their shells.  The cheese selection was decent but not what I imagined we'd find in this joint.  The at least had the essentials: coffee, croissants, and fruit preserves.  I prefer orange marmalade but instead made due with some peach preserves.  Over all, it was decent.
 
 
 
