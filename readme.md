@@ -226,6 +226,11 @@ I took a quick shower and we both crashed into our shoved-together twin beds aro
 * Hot Chocolate
 * Lunch
 * Train Station
+* Train to Paris
+* The Metro
+* Hotel Des Arts
+* Dinner
+* Hotel
 
 Carla told me that she was actually awake at midnight.  Neither of us managed to get back to sleep.  WTF?  We've never had this much trouble adjusting to the local timezone before.  I might need to see about bringing along some pharmaceutical assistance on future trips if this is the way it's going to be.
 
@@ -272,6 +277,50 @@ Just down around the corner, BeBiche was everything we were hoping it would be; 
 It was around 10:30 PM when we finally stumbled back to the hotel.  We unpacked, freshened up, and prepared for bed.  Would this be the night that we get an actual full night's sleep?  This was a no-nap day so I was hopeful.  Plus, I had a belly full of fine French food and 1664 beer so I was extra optimistic.  We hit the sheets around 11:30 PM and both winked out immediately.
 
 ## Day Six - Paris
+
+* Starbucks
+* Arc de Triomphe
+* Champs-Elysees
+* Lunch
+* Napoleon's Tomb
+* The Seine
+* The Eiffel Tower
+* Hotel
+* Dinner
+* Sacre-Coeur
+* Hotel
+
+I did wake up once or twice during the night but I managed to get back to sleep so I'm gonna' call this the first full night's sleep for both of us.  I woke up around 6:30 AM and worked on this travel log for a bit.  Carla kept snoozin' until 9:00 AM.  We both felt fantastic and were ready to hit a few of the big must-do tourist spots on our first full day in Paris.
+
+We headed out around 10:00 AM and walked down Rue Lepic to Place Blanche and the Blanche metro station.  My God this street is the cutest damned street.  All of the shops and cafes were open.  We passed a couple of small grocers, a butcher, a fishmonger, a cheese shop, a florist, a couple of patisseries, a high-end bakery, etc.  If Walt Disney tried to design a "Parisian Street" for one of the theme parks, it wouldn't look as charming and magical as this one. About half way down, we pulled out Google Maps to find somewhere to get a bite to eat.  The place we wanted to try didn't open for another 20 minutes so we ducked into the Starbucks (yes, I know get over it) at Place Blanche and grabbed a couple of lattes and some Stroopwafels.  By the time we finished, we agreed that we were no longer hungry and decided to continue on with our day.
+
+We decided to take the bus to the Arc de Triomphe instead of the metro so that we could soak in more of the scenery along the way.  I had forgotten the Navigo cards back at the hotel room so I had to go down into the Blanche metro station and buy some one-trip metro/bus passes.  We queued up the covered bus stop with a bunch of locals and waited for the 40 bus to arrive.  The bus stop display said that it would be there in two minutes and it appeared right on time.  We boarded and rode six or seven stops to the Arc de Triomphe.  We were dropped off literally at the corner of AVe de Wagram and the giant roundabout that surrounds the Arc de Triomphe.  Carla looked out across the most chaotic roundabout in all of Europe and was ready to talk across it to get to the giant monument.  I explained that that would be tantamount to suicide and that there was an underground walkway to get over to the little circular plaza that surrounds the Arc.  We actually had to head down into the metro entrance that was right next to the bus stop and follow the signs over to the Arc de Triomphe.  It eventually led us to the metro _exit_ on the Champs-Elysees that was right next to the _entrance_ to the underground walkway to the Arc de Triomphe.  It was a lot of steps up and down but finally we emerged at the Arc plaza nearly under the monument itself.
+
+It's quite a monument to behold and the detail up close is mesmerizing.  The mind boggles at how such a thing was designed and constructed without the aid of modern technology.  We strolled around, read some some of the giant brass plackards embedded in the ground, and took a lot of pics.  I explained that the Grande Arche, which was visible down at the other end of Av. Charles de Gaulle in La Defense was big enough to swallow the monument that we were standing under.  We didn't go up in the Arc de Triomphe due to the length of the queue and the fact that, even with the lift, there would still be a lot of stairs involved.  
+
+We took the underground walkway back to the Champs-Elysees and began a stroll down the shopping street to end all shopping streets.  We did a bit of window shopping and a bit of actual shopping.  Carla picked up an exceptionally sparkly ring from the Swarovsky store and I bought a very reasonably priced scarf from Celio to shield my neck from the chilly winds blowing down the broad Parisian avenues.
+
+After about an hour or so of that, we both decided that it was time to get some lunch.  The first place we found (with a 4.9 rating) had no availability so we rolled on to the next choice, Chez Andre, which had a tiny little two-top that they squeezed us into back in the corner.  It was grandma's house hot in there so we had to strip down to our base layers and check our coats with the waitress.  Carla ordered some French Onion Soup (which I had incorrectly assumed would just be called "Onion Soup" here) and I had the tuesday special which was a grilled sausage and mashed potatoes.  There was some sparkling water and a glass of the house wine involved as well.  The fact that the total was under 50 euro was amazing for the quality of the meal and the fact that we were in downtown Paris.
+
+We found our coats in the coat check closet, stepped outside, and order an Uber to take us our next destination, Napoleon's Tomb.  The uber driver was coincidentally _right there_ so we jumped in and enjoyed the quick ride over to the giant complex that contained multiple military museums and the tomb of Napoleon.  We visited the tomb but none of the museums.
+
+And what a tomb!  This place was enormous and decorated as sumptuously as St. Peter's Basilica.  There's one gargantuan main dome flanked by four smaller domes and every one was gorgeously painted and gilded.  Napoleon's tomb lies directly under the main dome.  It was incredbile and awe inspiring.  The view out the front of the massive building looks down a massively broad boulevard.  These folks really know how to create a presentation to inspire awe and reverence.
+
+After the dome, we walked back out of the giant complex the way we had come and strolled over the Seine.  We took the obligatory pics and walked across the Pont Alexandre III bridge.  Part of the bridge was blocked off with orange cones and caution tape by a crew that was setting up a TV or movie shoot.  Pretty cool.  At the far end of the bridge near the Grand Palais we called our next Uber to take us to the Eiffel Tower.  Our driver appeared in about 60 seconds an whisked us away.
+
+The Eiffel Tower wasn't very far away so, about five minutes later, we were stepping out at a corner of the park that surrounds Paris's most famous monument.  One used to be able to stroll right under the Eiffel Tower unimpeeded but it seems that security concerns have caused the government to erect a fence and security checkpoints around the base of the monument.  We found the line for non-ticket holders, snaked our way through a few turnstiles, and made it through security pretty quickly.  We weren't planning on going up in the tower so we just strolled around, took a bunch of pictures, and enjoyed a little people watching.  We got bored of this pretty quickly and decided that it was time to head back to the hotel for a bit.  Google maps revealed that we'd take the exact same 40 bus back to the station from which we had started our day hours earlier.  
+
+We found the bus stop and watied... for quite a while.  At least two of the expected arrival times came and went with no bus appearing.  Carla was just calling an uber when the 40 finally appeared.  The crowd waiting to get on was pretty juicy by this point.  The bus was _packed_ once everyone managed to squeeze on.  We stood for a while until we hit one stop about halfway to our destination where half of the bus got off.  We found a seat after that and enjoyed the rest of the ride more comfortably until we arrived back at Place Blanche.
+
+The walk back up to the hotel was just as charming as the walk down.  Once in our room, we relaxed for a while and let our feet, knees, and hips recover.  I'm not sure exactly what time it was when we got back but it was still light out.  We made a plan to walk up to Sacre Couer after dark and find some place for dinner along the way.
+
+Most of the restaurants around our hotel open for dinner at 7:00 PM.  We found a highly rated little place called La Boite uax Lettres (The Mailbox) and headed out so that we'd arrive right at 7:00 PM.  It was the perfect little spot.  The staff were super friendly and clearly passionate about providing excellent food and service.  We tried a selection of appetizers labled "for the indecisives" on the menu board which were excellent.  Carla had the rump steak and I went with Pollack on a carrot puree.  Carla finished with a decaf expresso which came with a single bite of chocolate cake that the waiter had made himself and I tried the rice pudding with salted caramel sauce.  Everything was truly excellent.
+
+Back out into the cold, we continued to climb up and up towards Sacre Coeur.  We came across the most picturesque little square with the most charmingly lit little restaurants on three sides and Christmas decorations all around.  We got our first peek of the magnificent view of downtown Paris from the far corner of this square and then continued on.  We came upon the side of the magnificent Sacre Couer a couple of blocks later.  I'm not sure what I was expecting but it wasn't a church of this magnitude and grandiosity.  We scooted around to the front of the church where the view opens up into the most magnificent vista of downtown Paris at night.  There was a pretty decent crowd of folks up there to take in the view with us and for good reason - it's legendary.  I setup my iPhone to take some timelapses and Carla went inside the church to have a look around.  After getting our shared of this unbelievable view, we started the long downhill walk back to the hotel.  This was pretty rough on Carla's left knee so we were happy to eventually make it back to the hotel.
+
+I flopped down on my little twin bed and fell asleep immediately fully clothed.  Carla eventually woke me up and told me to properly get ready for bed which I did.  I think it was around 11:30 when be both turned in for good.
+
+## Day Seven - Paris
 
 
 
