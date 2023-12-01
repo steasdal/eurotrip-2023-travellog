@@ -322,6 +322,54 @@ I flopped down on my little twin bed and fell asleep immediately fully clothed. 
 
 ## Day Seven - Paris
 
+* Laundry
+* Lunch
+* Louvre
+* Conciergerie
+* Saint Chapelle
+* Notre Dame
+* Bus to Place de Chichy
+* BeBiche
+* Hotel
+
+We're both still waking up in the middle of the night.  Flopped around for a while reading on the phones but eventually managed to get a couple more hours of sleep.  I eventually rolled out of bed around 7:00 AM because I wanted to get to the laundromat and get the some laundry going as early as possible.
+
+The laundromat was very conveniently just on the next street over.  I packed all of our dirties - of which we had many by this point - into my big backpack and hauled them on over.  It was pretty chilly this morning but the walk wasn't far.  The desk clerk asked if I was checking out and I said that I was just off to the laundromat.  It took me a few minutes to understand how things worked at the laundromat.  There were instructions in english but it still took a bit of puzzle solving to figure things out.  There was a payment kiosk that took contactless payments and every machine had a number on it including the detergent dispenser which was number 40.  To get a detergent packet, I entered 40 at the payment kisok and then payed with my card.  The detergent dispenser then pooped out a packet of two detergent pods.  The machines worked similarly.  I loaded all of the dirties into a large machine - number 27 if I remember correctly - threw in the detergent pods, set the cycle and temperature, then typed in the machine number and paid at the payment kisok and voila the machine started up and began washing.  The cost was €7.50 for the wash alone.
+
+The wash cycle took quite a while.  I swear I selected the 45 minute cycle but it seemd to go on for well over a hour.  I worked on this travel log while I waited.  An older French lady came in while I was waiting and I walked her through how the machines worked.  She spoke fairly decent English so we had no problem communicating.
+
+My wash cycle eventually finished up and I moved the clothes to one of the big dryers.  These worked in increments of eight minutes so I had to purchase several cycles.  By 10:00 AM I got tired of waiting for the clothes to dry so I packed them up with some articles still a little damp and hauled everything back to the hotel.  We hung or laid out the damp stuff around the hotel room.
+
+After chillin' for a little while, we decided to head on out.  The first item on our agenda for the day was to visit the Louvre but we wanted to get some lunch first.  The bus stop for the bus that would take us to the Louver and the cafe we had picked for lunch were conveniently colocated.  Like, the bus stop was out the front door of the cafe.  Cafe Blanche was just opening up when we got there at 11:00 AM.  The waiter/maître d asked us if we had reservations which we didn't.  He asked if we could be in and out in 45 minutes which we told him would be no problem at all.  He had a swarthy little moustache and was a bit sassy but in a rather entertaining way.  He sat us in a little corner table and we ordered a slice of quiche for me and a bowl of French onion soup for Carla.  Both were excellent.  My quiche was stuffed full of mushrooms and veggies and came with some fries and a little salad.  We were out in only thirty minutes.  In yo' face sassy waiter!
+
+We waited at the bus stop for a few minutes before I looked up at the display that indicates when the next bus is due to arrive.  There appeared to be some kind of traffic situation that was going to delay our bus's arrival for 18 minutes so we called an Uber.  Our Uber driver appeared in just a couple of minutes and whisked us off towards the Louver.  The traffic was absolute madness in downtown Paris and our driver didn't seem very happy about having to drive in it.  He fidgety and kept sighing loudly.  He eventually fought through all of the madness and dropped us off at one of the side entrances for the Louvre.  We found the entrance we were supposed to go in - not the big glass pyramid it turned out - and made our way inside.
+
+The Louver is truly gigantic.  It's five stories deep and wings on wings on wings.  It just goes on and on.  I've been there twice before and was still overwhelmed by the sheer size of the place.  We checked our coats in the super convenient free self-service lockers and started our journey.  Like most folks, we went straight for the Mona Lisa.  It took a bit of orientiering but we found the hall where the world's most famous work of art is prominently displayed.  As always, there was a huge crowd of people people taking pics with their cell phones.  We didn't get up to the front  of the herd but got close _enough_ for a pretty good glimpse.  From there, we found our way to the hall of the French crown jewels.  Quite the bling.  Following that, we tried to make our way to the apartments of Napoleon III.  We enjoyed the different halls along the way and eventually arrived at a sign saying that the apartments were closed and would reopen sometime on 2024.  From there, we took the lift down to the bottom floor and wandered through the sculpture garden briefly.  This doesn't sound like much but we had probably been in the Louvre nearly two hours at this point.  It's just that massive.  We found a little cafe near the self-service lockers and had some sparkling water.  We were both quite parched and suspected that they keep the humidity super low in the Louvre for obvious reasons.  We both agreed that we'd seen enough of the world's finest art and decided to move on to the next attraction.
+
+We retrieved our coats from the self-service lockers and headed for the exit.  We needed to take the metro over to the Ile de la Cité - the little island in the Seine where the Cathedral of Notre Dame is located.  Amazingly, there's an underground tunnel that leads from the Louvre exit hall to the nearby metro station.  There were some stairs involved but they weren't too bad.  We hopped on the metro and jumped off at a stop that was just across the Seine from the Ile de la Cité.  We crossed the bridge and headed from Sainte-Chapelle.
+
+Our tickets gave us access to both [Sainte-Chapelle](https://en.wikipedia.org/wiki/Sainte-Chapelle) and the [Conciergerie](https://en.wikipedia.org/wiki/Conciergerie).  We started with the Conciergerie.  To begin with, I pulled out our tickets for St. Peter's Basilica.  For future reference, you can't get into the Conciergerie with tickts from St. Pete's.  Carla found the actual tickets but when we went to scan them, the young lady behind the counter asked us if we had already been to Sainte-Chapelle.  We said that we hadn't and she advised us to head there first since it closes much earlier.  Solid advice; we followed it.
+
+We headed over to Sainte-Chapelle and made our way through the security line.  It was very much like airport security complete with the body scanner where you have to raise your arms above your head.  You know the one's I'm talking about.  After exiting security, we were guided around to the rear entrance of Sainte-Chapelle and entered.  My first thought was, "this is it?"  What we were looking at was the entry hall which contained some informational displays and a gift shop.  We looked around and saw a few people entering a little spiral staircase in the corner near the entrance so we followed them.  This staircase was tiny and the stairs were steep.  Carla struggled a bit but we made our way up.  Lucily it was only two stories to the main sanctuary.  We emerged and were instantly dazzled with the most unbelievable display of stained glass that we'd ever seen.  It was stunning.  We sat and marveled at at the incredible interior for a good 30 minutes or so.  To leave, we had to navigate a separate but equally treacherous set of spiral steps going back down.  This was even rougher on Carla but we made it one step at a time.
+
+After leaving Sainte-Chapelle, we decided to skip the Conciergerie since we were getting pretty walked out by this point and it looked like the Conciergerie was going to involve a lot of steps.  We instead walked over to our next destination, the Cathedral of Notre Dame.  It's still under construction and was walled off so that we couldn't even get close.  It makes sense since it's an active construction site but we were still bummed that we couldn't get closer.  There was a building that, on the back side, was also a set of wooded bleachers that faced the cathedral so we had a seat on those.  After marveling at the cathedral and taking a bunch of pics, we decided that it was time to head back to the hotel.  The plan was to take a bus back to Place de Clichy which is near our hotel, walk the rest of the way back, and find a place for dinner along the way.
+
+The bus ride was relatively uneventful but pretty slow due to all of the downtown traffic.  We hopped of at Place de Clicky and started walking back towards the hotel as planned.  We talked about where to eat and decided on going back to BeBiche since it was such a good experience on our previous visit.  We walked up through Montmartre and, as usual, marveled what an incredible charming place it is.  We were darkening the doorway of BeBiche in no time.  The waitress remembered us, welcomed us back, and set us at the exact same table as before.  The waitress suggested a bottle of chablis which we took her up on.  Carla ordered the rumpsteak again and it was my turn for the French onion soup.  The rumpsteak was just as good as the previous time and the soup was nearly the best I've ever had.  It bears repeating what a lovely little spot this restaurant is.  If we're ever back in Paris again, I think we'll try to stay in the same hotel just so we can go back to BeBiche.  I truly hope it's still there the next time we're in Paris.
+
+We finished up dinner and headed back to the hotel for the final time.  We packed up everything we didn't need for he next day including all of our previously damp clothes that were hanging about the room and called it a night.  The Hôtel Des Arts Montmartre was an excellent little stop over on our European journey.  Everyone was super nice, the room was excellent, and the location can't be beat.  10/10 would say again.  We were both beat from all the walking and conked out pretty quick.
+
+# Day Eight - Paris to London
+
+* Breakfast
+* Gare du Nord
+* Eurostar through the Chunnel
+* St Pancras
+* London Metro
+* Hotel
+* Hyde Park walk/nap
+* The King's Head Pub
+* Hotel
+
 
 
 
